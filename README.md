@@ -1,0 +1,1 @@
+Just an repository of notes about the books i read.
